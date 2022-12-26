@@ -1,1 +1,2 @@
-hey kraity#0001
+hey 
+Discord: kraity#0001
